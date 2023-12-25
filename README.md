@@ -1,4 +1,4 @@
-- Hi, I´m Fefy, Fefycona,
+- Hi, I´m Fefy, Fefycona, Fefyconamor
 - the thing I love the most is music,
 - and I´m interested in learning how AI works.
 
